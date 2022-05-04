@@ -3,10 +3,10 @@ j
 # Contact
 
 **Discord**  
-jamie#4870  
+jamieq#4870  
 
 **Twitter**  
-[@rdctdaqua](https://www.twitter.com/rdctdaqua)  
+[@jamieq](https://www.twitter.com/jamieq)  
 
 **Email**  
 [jamiepaulquilliam@gmail.com](mailto:jamiepaulquilliam@gmail.com)
