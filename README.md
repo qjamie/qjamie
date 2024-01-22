@@ -1,12 +1,12 @@
-j
+the j
 
 # Contact
 
 **Discord**  
-jamieq#4870  
+qjamie 
 
 **Twitter**  
-[@jamieq](https://www.twitter.com/jamieq)  
+[@qjamie_](https://www.twitter.com/qjamie_)  
 
 **Email**  
 [jamiepaulquilliam@gmail.com](mailto:jamiepaulquilliam@gmail.com)
